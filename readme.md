@@ -1,0 +1,1 @@
+This recipe is a homemade ice cream recipe. It is a regular vanilla ice cream.
